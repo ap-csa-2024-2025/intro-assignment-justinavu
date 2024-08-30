@@ -18,3 +18,4 @@ Answer the questions below
 * List your sports and extracurriculars you participate in
 
 1. i hate kenji
+2. why bald
