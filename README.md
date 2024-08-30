@@ -19,3 +19,4 @@ Answer the questions below
 
 1. i hate kenji
 2. why bald
+3. swim, mma, codeforkids
